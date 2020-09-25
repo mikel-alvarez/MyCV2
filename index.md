@@ -11,4 +11,4 @@ Fuera del colegio suelo ir a entrenar a baloncesto y a quedar con mis amigos
 
 ## Estudios
 
-El año pasado estube haciendo __Grado medio de SMR__ que es Sistemas microinformaticos y redes 
+El año pasado estube haciendo __Grado medio de SMR__ que es Sistemas microinformaticos y redes
